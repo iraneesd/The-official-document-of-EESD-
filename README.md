@@ -1,10 +1,63 @@
 Welcome to the Brief description of of EESD activities the mission, and its roles in society.
 
+Updated official authorization letter and new board names
+
+Islamic Republic of Iran, Ministry of Science, Research and Technology
+
+In the name of excellence
+
+Date 	2022   June  21   , Tuesday	
+
+No 	1401- 31
+
+
+Mr. Mirza Mohammadi
+
+Honorable Head of the Registration Department of Companies and Non-Commercial Institutions
+
+Greetings and respect
+
+Attached to the minutes of the ordinary general meeting and the board of directors dated 20 - 5 - 2021 (30/02/1400) of the Institute of the Scientific Association of Environmental Education and Sustainable Development of Iran, sealed with the seal of this commission regarding the election of the main and alternate members of the board of directors and the designation of the positions and holders of authorized signatures as follows is used Please arrange for the necessary measures to be taken for registration. In addition, the reason for the delay in sending cases is the time-consuming process of checking the qualifications of elected members, which is justified.
+
+A. Names and surnames of the main members of the board of directors
+
+1- Dr. Jalal Valiallahi				Chairman of the Board of Directors
+2- Mr. Dr. Nasser Ebaadi			Vice Chairman of the Board of Directors
+3- Mr. Dr. Abolfazl Soltani			Treasurer
+4- Mr. Dr. Ebrahim Fatani			member
+5- Mr. Dr. Hossein Yousefi			member
+-6- Mr. Dr. Shaban Shatabi Joibari		member
+-7- Dr. Masoumeh Sohrabi Molla Yousefi	member
+
+B: Names and surnames of the alternate members of the board of directors:
+1 Mr. Dr. Ahmed Kolahmal Hamdani
+
+C. Names and surnames of the main and alternate inspectors:
+1- Mr. Seyed Rahim Mousavi
+2- Mr. Abdullah Faizabadi
+3- Mrs. Fatemeh Salimi
+
+
+Address: Tehran - Quds town , Sanat Square, St, Khordin, Hormzan St., South Pirozan Street corner
+
+Postal code: 14666-64891, Phone number: 82231000, Mailbox: Tehran, 1513-14665
+
+D: The right to sign 	original	original
+
+instead of 
+The right to sign all securities and binding documents and official and administrative correspondence is in accordance with the Articles of Association.
+
+Peyman Salehi
+
+Research assistant and the head of the Iranian Scientific Associations Commission
+
+Website: www.msrt.ir         Email: info@msrt.ir
 
 
 
 
-Association Statutes
+Association Statutes:
+
 The activities of the association are based on the official and legal statutes of the association. This statute includes 6 chapters, 25 legal articles, some of which are as follows:
 Activities and the mission of EESD in the Statute:
 Statute of the Scientific Association of Environmental Education and Sustainable Development of Iran
