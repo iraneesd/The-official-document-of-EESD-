@@ -1,4 +1,9 @@
 Welcome to the Brief description of of EESD activities the mission, and its roles in society.
+
+
+
+
+
 Association Statutes
 The activities of the association are based on the official and legal statutes of the association. This statute includes 6 chapters, 25 legal articles, some of which are as follows:
 Activities and the mission of EESD in the Statute:
